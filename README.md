@@ -1,5 +1,5 @@
 - 👋 Opa, sou @Elisson15
 - 👀 Estou interessado em: Engenharia De Software 
-- 🌱 Atualmente estou aprendendo: Programar 
+- 🌱 Atualmente estou aprendendo: Html E Css
 - 💞️ Procuro colaborar em: Qualquer Coisa
 - 📫 Como entrar em contato comigo: Instagram @elisson_06_xiv
